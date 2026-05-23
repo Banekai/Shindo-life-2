@@ -1,1 +1,0 @@
-# Shindo-life-2
